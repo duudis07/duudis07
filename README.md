@@ -11,4 +11,4 @@ voce entrar em contato comigo
 
 duudis07
 
-![]([https://media.tenor.com/zVvViQKqa0MAAAAi/psybirdb1oom.gif](https://media.tenor.com/zVvViQKqa0MAAAAi/psybirdb1oom.gif))
+![](https://media.tenor.com/zVvViQKqa0MAAAAi/psybirdb1oom.gif)
